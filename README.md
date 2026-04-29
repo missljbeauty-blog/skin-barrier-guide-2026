@@ -13,3 +13,15 @@ https://www.missljbeauty.com/2026/01/the-inkey-list-pdrn-serum-review.html
 
 More skincare testing and outdoor routines:
 https://www.missljbeauty.com
+
+## Update 2026
+
+As my routine has evolved, especially with more time outdoors, I’ve focused more on supporting my skin rather than overloading it.
+
+I’ve been testing products like Medik8 Liquid Peptides to help with overall skin quality and resilience, alongside keeping the rest of my routine simple.
+
+https://www.missljbeauty.com/2026/04/medik8-liquid-peptides-review.html
+
+
+
+
