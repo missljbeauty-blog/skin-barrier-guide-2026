@@ -22,6 +22,19 @@ I’ve been testing products like Medik8 Liquid Peptides to help with overall sk
 
 https://www.missljbeauty.com/2026/04/medik8-liquid-peptides-review.html
 
+**## Haircare & Everyday Beauty
 
+I’ve also been trying to keep my beauty and haircare routine simpler and lower maintenance recently, especially with how much weather and routine changes seem to affect everything.
+
+Products that add shine and softness without feeling heavy have made a noticeable difference for me.
+
+👉 [Garnier Olia Gloss Old Money Blonde review](https://www.missljbeauty.com/2026/05/garnier-olia-gloss-old-money-blonde.html)
+Haircare & Everyday Beauty
+
+I’ve also been trying to keep my beauty and haircare routine simpler and lower maintenance recently, especially with how much weather and routine changes seem to affect everything.
+
+Products that add shine and softness without feeling heavy have made a noticeable difference for me.
+
+👉 Garnier Olia Gloss Old Money Blonde review**
 
 
